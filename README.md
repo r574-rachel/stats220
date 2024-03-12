@@ -9,11 +9,11 @@
 |:------------:|:------------:|
 | <img src="https://i.pinimg.com/564x/1d/6a/6f/1d6a6ffb8fc0b98e97e6330dbae950f3.jpg" width="240" height="220"> | [FIND OUT MORE INFJ MEMES](https://www.pinterest.nz/pin/56435801572034544/) |
 
-**:panda_face: Favourite Animal**
+**:panda_face: Favourite Animals**
 * :cat:
 * :dog:
 * :rabbit:
 
-**:headphones: Favourite Music Type**
+**:headphones: Favourite Music Types**
 1. R&B
 2. Pop music
