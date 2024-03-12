@@ -1,7 +1,7 @@
 # stats220
 
-## - Introduce 
-📲 This repo is used to practice all the skills and knowledge that are learned from stats220.
+## - Repository introduction 
+📲 *This repo is used to practice all the skills and knowledge that are learned from stats220.*
 
 ### :sparkles: About me :sparkles:
 
