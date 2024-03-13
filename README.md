@@ -9,7 +9,7 @@
 |:------------:|:------------:|
 | <img src="https://i.pinimg.com/564x/1d/6a/6f/1d6a6ffb8fc0b98e97e6330dbae950f3.jpg" width="240" height="220"> | [FIND OUT MORE INFJ MEMES](https://www.pinterest.nz/pin/56435801572034544/) |
 
-**:panda_face: Favourite Animals**
+**&#128060; Favourite Animals**
 * :cat:
 * :dog:
 * :rabbit:
